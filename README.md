@@ -4,7 +4,7 @@
 
 ☁️ **AWS Cloud Practitioner (in progress)**  
 📍 Johannesburg, South Africa  
-🧠 Tech-minded / Curious / Eager to learn  
+🧠 Curious / Tech driven / Eager to learn  
 
 ---
 
